@@ -1,0 +1,1 @@
+Apregi pratayda
